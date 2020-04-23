@@ -11,6 +11,6 @@ We all just playing video games all day but sometimes we get bored. Due to MCO, 
 </p>
 <p>That’s all for my life during the Movement Control Order (MCO). Assalamualaikum and Salam Ramadhan, and Happy Fasting to all Muslim.</p>
 
-![](Akmal/puasa%202.png)
+![](Akmal/puasa 2.png)
 
 ![](Akmal/covid-19.png)
